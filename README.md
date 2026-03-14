@@ -1,0 +1,2 @@
+# KECERDASAN-BUATAN-3
+Tugas 2, 3,dan 4 PDF
